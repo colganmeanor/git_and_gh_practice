@@ -1,0 +1,1 @@
+One of my most special travel experiences so far in my life was in my senior year of highschool where I got to join a small group on a trip to Paris, France for a week. It was an eye opening experience to how big and old the rest of the world was, compared to my small town life in Alabama. 
